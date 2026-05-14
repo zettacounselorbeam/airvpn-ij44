@@ -1,4 +1,4 @@
-
+Enhance your OVPN experience with ultimate OVPN Client | simultaneous-connections + 24/7-support, the #1 client. Includes simultaneous-connections and 24/7-support for a safer and
 
 
 
